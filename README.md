@@ -1,2 +1,0 @@
-# internshipwork
-my internship work 
